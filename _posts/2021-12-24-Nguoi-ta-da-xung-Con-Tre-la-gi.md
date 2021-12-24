@@ -50,7 +50,6 @@ Hầu hết các bản dịch Kinh Thánh hiện đại đều sử dụn
 
 ---
 Nguyễn Duy Niệm
-Giáng Sinh 2021
 
 **Tài liệu tham khảo:**
 *Keil, C. F., & Delitzsch, F. (1996). Commentary on the Old Testament. Peabody, MA: Hendrickson.*
