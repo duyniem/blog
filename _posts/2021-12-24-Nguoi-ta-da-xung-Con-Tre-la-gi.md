@@ -32,7 +32,7 @@ Và cuối cùng cách dịch với bốn danh xưng bắt đầu đươ
 	>**(c’) CHÚA (שַׂר)** 
 	>>(d’) bình an (שָׁלוֹם)
 	   
-	   Hoặc chúng ta cũng có thể xem đây là một cấu trúc đối giao phức
+	Hoặc chúng ta cũng có thể xem đây là một cấu trúc đối giao phức
 	   
 	>(a) lạ lùng (פֶּלֶא), 
 	>>**(b) ÐẤNG MƯU LUẬN (יוֹעֵץ),** 
