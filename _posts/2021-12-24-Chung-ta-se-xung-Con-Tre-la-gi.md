@@ -22,6 +22,7 @@ Cách dịch số danh xưng Con Trẻ sẽ ảnh hưởng đến các buô
 Ngày xưa, người ta đã xưng Con Trẻ như vậy. Còn ngày nay, chúng ta sẽ xưng Con Trẻ là gì? Có bao nhiêu danh xưng? 
 
 Khi vấn đề này và những vấn đề khác (tương tự, cùng thể loại) được nêu lên thì đã nhận được một số phản hồi, xin liệt kê bên dưới:
+
 *“Not important – Không quan trọng. No problem – Không phải là vấn đề. No need – Không cần thiết.”* 
 
 *“Có những chuyện không thể Đúng/Sai rõ ràng được. Đừng đặt nặng chuyện Đúng/Sai.”*
